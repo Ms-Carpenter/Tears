@@ -121,8 +121,8 @@ Tears run down both my thighs (Shikitah)
 
 ##
 
-Artist: Sabrina Carpenter
+**Artist**: Sabrina Carpenter
 
-Label: Island Records
+**Label**: Island Records
 
 
